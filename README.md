@@ -1,2 +1,2 @@
-Bacause you can never have enough Skyrim
+Because you can never have enough Skyrim
 
